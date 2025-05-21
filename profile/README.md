@@ -4,6 +4,8 @@
 
 **Get ready** to ignite your engines in **Escape Road 2**, the **ultimate car racing and survival game** that will test your reflexes, patience, and willpower! Drive through **deadly traps**, dodge falling obstacles, and make split-second decisions as you **dash down a narrow, winding road** that never ends.
 
+## <a href="https://1kb.link/kVbntu">👉 Click To Play Escape Road 2 Unblocked 👈</a>
+
 Whether you're a casual gamer or a hardcore speed chaser, **Escape Road 2** delivers a **hyper casual racing experience** packed with **extreme thrills, blazing visuals**, and **endless gameplay** that keeps you coming back for more.
 
 ---
